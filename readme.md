@@ -1,0 +1,1 @@
+# easy verstka za 13 min
